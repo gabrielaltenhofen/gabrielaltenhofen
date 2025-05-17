@@ -45,6 +45,4 @@ Profissional dedicado com experiência em desenvolvimento tecnológico, focado e
 - Ferramentas CAD: CREO, SolidWorks  
 - Pensamento analítico, organização e resolução de problemas  
 
----
 
-Quer que eu ajude a transformar isso num perfil LinkedIn top ou num README com visual mais estiloso, Mestre? E me diz: qual projeto do seu portfólio você quer destacar mais? Ou prefere que eu monte um texto com foco em vagas na área de desenvolvimento?
