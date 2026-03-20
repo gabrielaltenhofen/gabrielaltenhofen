@@ -141,7 +141,7 @@ Sinta-se à vontade para entrar em contato comigo! Estou sempre aberto a novas o
 
 <div align="center">
 
-[📧 Email](mailto:gabrielgirardih@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/gabriel-altenhofen-a9ba1b235/) • [📱 WhatsApp](https://wa.me/5555984048698)
+[📧 Email](mailto:gabrielgirardih@gmail.com) • [💼 LinkedIn](https://www.linkedin.com/in/gabriel-altenhofen-a9ba1b235/)
 
 </div>
 
